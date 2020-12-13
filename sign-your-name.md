@@ -10,3 +10,5 @@
 
 * RuggLife: What am I even doing here?
 
+* PenFold: The Chupa Chups logo was designed by Salvador Dali 
+

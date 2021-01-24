@@ -12,3 +12,5 @@
 
 * PenFold: The Chupa Chups logo was designed by Salvador Dali 
 
+* DawnT: The thought of how to eat an elephant makes me queasy so instead: “The journey of a thousand miles begins with a single step.” ― Lao Tzu. And I've already made it to page 256!
+
